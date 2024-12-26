@@ -1,4 +1,4 @@
-# Hi there, I'm @itswar10 👋
+# Hi there, I'm Wahaj Rana👋
 
 ## 🚀 About Me
 
